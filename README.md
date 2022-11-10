@@ -1,12 +1,12 @@
-# feel-close-submod
-A submod that makes you feel close to Monika! 
+Feel close Submod *ೃ༄
+ღ Made by libitina-san!!
 
-~You can find there...
+˗ˏˋThis submod has...´ˎ˗
+✧ Prank Monika
+✧ Sleep with Monika
+✧ Window reactions!
+✧ New goodbyes & compliments!
+✧ Questions to ask Monika!
+✧ And so much more!
 
-- New compliments!
-- Hug Monika!(not holding, something new~)
-- Eat/drink with Monika!
-- New farewells!
-- New welcomes!
-- New items you can give her!
-And sooo much more!
+༊*·˚ Special thanks to...
