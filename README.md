@@ -7,6 +7,8 @@ Feel close Submod *ೃ༄
 ✧ Window reactions!
 ✧ New goodbyes & compliments!
 ✧ Questions to ask Monika!
+✧ More compliments!
 ✧ And so much more!
 
 ༊*·˚ Special thanks to...
+dreamscached - helped with coding
