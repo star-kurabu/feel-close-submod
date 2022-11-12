@@ -3,7 +3,6 @@ Feel close Submod *ೃ༄
 
 ˗ˏˋThis submod has...´ˎ˗
 ✧ Prank Monika
-✧ Sleep with Monika
 ✧ Window reactions!
 ✧ New goodbyes & compliments!
 ✧ Questions to ask Monika!
