@@ -4,7 +4,7 @@ Feel close Submod *ೃ༄
 ˗ˏˋThis submod has...´ˎ˗
 ✧ Prank Monika
 ✧ Window reactions!
-✧ New goodbyes & compliments!
+✧ New farewells & compliments & welcomes!
 ✧ Questions to ask Monika!
 ✧ More compliments!
 ✧ And so much more!
